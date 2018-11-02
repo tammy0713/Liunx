@@ -1,1 +1,1 @@
-# TYY is a big fool!
+tammy is cool
